@@ -8,4 +8,6 @@ i am naught but a figment of your imagination.
 
 [discord: insi.gnificant](https://discord.com/users/853865815080960011)
 
-you are visitor number: <INTENTIONALLY_BROKEN_COUNTER>
+impulsive idea i got at 1 pm (yes AFTERNOON): [project suggestion forms](https://forms.gle/KJJrAVTri4PintDWA)
+
+you are visitor number: <INTENTIONALLY_DYSFUNCTIONAL_COUNTER>
