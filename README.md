@@ -6,7 +6,7 @@ i am naught but a figment of your imagination.
 
 [page: https://insicli.github.io](https://insicli.github.io)
 
-[discord: insi.gnificant](https://discord.com/users/853865815080960011)
+[discord: .insihmph](https://discord.com/users/853865815080960011)
 
 impulsive idea i got at 1 pm (yes AFTERNOON): [project suggestion forms](https://forms.gle/KJJrAVTri4PintDWA)
 
